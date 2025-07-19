@@ -1,0 +1,1 @@
+# BlogNaAvtomateManus Manus
